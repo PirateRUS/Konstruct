@@ -1,0 +1,1 @@
+Web saite "Partner with konstruct"
